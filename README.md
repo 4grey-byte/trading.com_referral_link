@@ -1,2 +1,8 @@
-# trading.com_referral_link
-Trading.com referral link code - 50USD trading credit bonus
+Trading.com referral code link
+
+Join Trading.com
+A friend just invited you to join Trading.com!
+
+Use my link to sign up: 
+
+https://tradingcom.onelink.me/e6GY/eu_refer-a-friend?raf=ebq4X
